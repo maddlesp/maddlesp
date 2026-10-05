@@ -1,3 +1,3 @@
 Hello!
 
-I'm Maddy. How are you seeing this...
+I'm Maddy. weird shit go brr
